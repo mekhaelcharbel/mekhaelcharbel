@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @charbel Mekhael 
-- 📫 How to reach me charbel.mkhael@sanitalb.com or ext:4811 
+- 📫 How to reach me charbel.mekhael@sanitalb.com or ext:4811 
 - ⚡ Fun fact: (:)
 
 <!---
